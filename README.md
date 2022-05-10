@@ -1,3 +1,8 @@
 # axify-deployments
 
-more coding, more bugs
+
+more coding
+even more coding
+The Rising of the Build Hero
+The Falling of the Pit Zero
+The Undying of the Quit Lego
